@@ -1,1 +1,0 @@
-# peresyl-v-dr-gor
